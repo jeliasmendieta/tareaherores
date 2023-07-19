@@ -7,3 +7,5 @@
 - Robin
 - Volcán Negro
 - Black Widonw
+- Batman
+- Batichica
