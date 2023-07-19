@@ -8,3 +8,5 @@
 6. Thanos
 7. Bruja Escarlata
 8. Octopu
+9. Superman Bizarro
+10. Ultron
