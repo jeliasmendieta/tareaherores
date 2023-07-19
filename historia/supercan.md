@@ -1,0 +1,1 @@
+Underdog, conocido también como Show de Underdog, es una serie de televisión animada estadounidense cuyo tema central es la parodia de un superhéroe con identidad secreta. Se transmitió en Estados Unidos en 1964 por la cadena NBC -ocasionalmente por la CBS- y duró hasta 1973. El personaje principal es Underdog, un perro antropomorfo con superpoderes.

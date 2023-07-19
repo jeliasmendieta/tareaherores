@@ -9,3 +9,4 @@
 - Black Widonw
 - Batman
 - Batichica
+- Supercan
